@@ -6,7 +6,8 @@ https://mega.nz/folder/D3I2iTBa#zoagvQunb5BGVRQKbQotyQ
 Password: 
 _peppapig_
 
-Note: You should use 7zip to unzip the file
+Note: You should use 7zip to unzip the file.
+
 Enjoy!
 
 If you enjoy the collection, you can buy me a coffee here:
