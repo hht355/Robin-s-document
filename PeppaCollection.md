@@ -6,7 +6,9 @@ https://mega.nz/folder/D3I2iTBa#zoagvQunb5BGVRQKbQotyQ
 Password: 
 _peppapig_
 
-Note: You should use 7zip to unzip the file.
+Note: 
+- You should use 7zip to unzip the file.
+- Season 9 will be updated once all the episodes are released and I'm able to collect them all.
 
 Enjoy!
 
