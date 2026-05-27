@@ -11,6 +11,7 @@ Note:
 - Season 9 will be updated once all the episodes are released and I'm able to collect them all.
 
 Updated 29/04/2026: Season 9 added with 21 episodes (E1, E7-E26). Big thanks to a friend from Reddit!
+Updated 27/05/2026: Added more episodes to season 9, E1-E26 are now available. Big thanks to a friend from Reddit!
 
 Enjoy!
 
